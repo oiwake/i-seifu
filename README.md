@@ -7,3 +7,6 @@
 たちつてと
 なにぬねの
 hahihuheho
+tatitu
+なにぬねの
+
